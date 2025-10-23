@@ -1,3 +1,4 @@
+baru saja 
 kemungkinan aja
 diatas pohon
 
