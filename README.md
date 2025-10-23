@@ -1,3 +1,4 @@
+adalah
 dia adalah
 muigknin
 baru saja 
