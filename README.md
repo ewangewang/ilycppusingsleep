@@ -1,5 +1,6 @@
 kucing
 kucing
+kucing
 adalah
 adalah
 dia adalah
