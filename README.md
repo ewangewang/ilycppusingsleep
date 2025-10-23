@@ -1,3 +1,4 @@
+kucing
 adalah
 adalah
 dia adalah
