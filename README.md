@@ -1,3 +1,4 @@
+dia adalah
 muigknin
 baru saja 
 kemungkinan aja
