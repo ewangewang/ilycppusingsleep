@@ -180,6 +180,7 @@ kucing
 kucing
 kucing
 kucing
+kucing
 adalah
 adalah
 dia adalah
